@@ -17,3 +17,7 @@
 - Capcut
 
 - and more...
+
+Roblox profile page >> [MYCZ](https://www.roblox.com/users/1517044563/profile)
+
+Youtube channel >> [marnPH](https://www.youtube.com/results?search_query=marnph)
