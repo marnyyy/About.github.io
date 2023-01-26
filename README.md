@@ -1,4 +1,4 @@
-[Go back](https://marnyyy.github.io/)
+[Back](https://marnyyy.github.io/)
 
 # About me
 ### Roblox
