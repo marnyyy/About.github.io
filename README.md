@@ -1,4 +1,4 @@
-[Back](https://marnyyy.github.io/)
+[Game page](https://marnyyy.github.io/)
 
 # About me
 ### Roblox
